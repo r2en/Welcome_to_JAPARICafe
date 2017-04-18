@@ -1,4 +1,4 @@
-# Welcome_to_JAPARICafe
+# Welcome_to_JAPARICaffe
 
 心が辛くなったオタクが自室へ戻るたびに<br>
 アルパカ・スリが「ふわああぁ！いらっしゃぁい！よぉこそぉ↑ジャパリカフェへ～！どう(ry」と<br>
